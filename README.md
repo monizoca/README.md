@@ -6,3 +6,4 @@ amo a história da Anne Frank🫀
 
 Ballet é minha paixão🩹
 Meu filme favorito com toda certeza é a barbie pop star💜
+Seja melhor pra vocẽ mesmo❤️‍🩹
